@@ -2,4 +2,4 @@
 If you mentioned me somewhere pls make sure to update the name and/or username
 
 Profile name: eighter puyomi or puyomi2k<br>
-Username/Tag/Handle/etc: puyo2k
+Username/Tag/Handle/etc: puyomi2k
