@@ -1,5 +1,5 @@
-# Renamed myself to [@puyomi2k](https://github.com/puyomi2k)
+# Renamed myself back to [@kujou2k](https://github.com/kujou2k)
 If you mentioned me somewhere pls make sure to update the name and/or username
 
-Profile name: eighter puyomi or puyomi2k<br>
-Username/Tag/Handle/etc: puyomi2k
+Profile name: eighter kujou or kujou2k<br>
+Username/Tag/Handle/etc: kujou2k
